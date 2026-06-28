@@ -3,7 +3,7 @@ im Wild i am a praying mantis\
 interests rn: PLAVE🩷❤️ / Deltarune💙💛\
 Usually AFK or pony editing. Feel free to INT ✓
 > [!TIP]
-> if u call urself a proshipper that's some white people shit, no thank you. thumbs down.\
+> if u call urself a proshipper that's some white people shit, no thank you. thumbs down.
 
 
 

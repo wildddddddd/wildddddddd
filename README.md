@@ -3,7 +3,7 @@ im Wild i am a praying mantis
 </br>
 </br>
 > [!TIP]
-> if u call urself a proshipper that's some white people shit, no thank you. thumbs downn
+> if u call urself a proshipper that's some loser shit ewwwww ew lol eww 
 </br>
 </br>
 
